@@ -86,17 +86,3 @@ Chrome productivity extension developed with AI-assisted coding (ChatGPT, Claude
 | English | B1 / B1+ |
 | Czech | B1 |
 | Russian | B2 |
-
----
-
-## Work authorization
-
-Seeking employment in the Czech Republic and happy to work with an employer on the Czech Employee Card application process.
-
----
-
-<div align="center">
-
-📄 PDF version available on request &nbsp;·&nbsp; ✉️ **[peretsmaria03@gmail.com](mailto:peretsmaria03@gmail.com)**
-
-</div>
